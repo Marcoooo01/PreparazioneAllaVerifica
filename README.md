@@ -1,0 +1,1 @@
+# PreparazioneAllaVerifica
